@@ -1,16 +1,14 @@
-### Hi there 👋
+### SEJA BEM-VINDO AO MEU PERIL
 
-<!--
-**lucas23052005/lucas23052005** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+📌 MEU NOME É LUCAS KOCHANOVSKI BURATO 
 
-Here are some ideas to get you started:
+👦 ESTUDO NO COLÉGIO JOSÉ MARCONDES SOBRINHO 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+TENHO 18 ANOS 
+
+EU GOSTO DE JOGAR
+
+NOS TEMPO LIVRE EU GOSTO E LER TANBEM 
+
+![](https://media.tenor.com/DX862Ukr_5oAAAAM/alvin-and-the-chipmunks-alvin.gif)
+
